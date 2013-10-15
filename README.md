@@ -2,7 +2,7 @@
 
 Renting a room in London can cost around £500 - £900 per month, higher in Zone 1 & 2. An apartment can cost anywhere between £1,100 to £2,500 per month, usually you get much more value for money away from Central London.  Other than rent, look out for the bills, including Internet, water, gas and Council Tax. Most quotes exclude Council Tax. It will be usually cheaper if you rent a full shared apartment instead of trying to find ensuite or studio apartments.
 
-Generally, it would be great to have tube connections to Bond Street Station or Oxford Circus. If you plan to cycle to work, do consider the route / distance to the office. If you're new to the city, staying near friends can be a great benefit too.
+Unless you are planning to cycle, you will probably want to have tube connections to either Bond Street Station, Oxford Circus or Green Park. If you plan to cycle to work, do consider the route / distance to the office. If you're new to the city, staying near friends can be a great benefit too.
 
 Some Area Guides:
 
